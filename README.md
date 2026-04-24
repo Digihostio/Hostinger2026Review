@@ -3,7 +3,7 @@
 > **The best Hostinger discount for India – automatically applied via referral link. No manual code needed. Plans start at just ₹69/month.**
 
 [![Claim Discount](https://img.shields.io/badge/🎉%20Claim%2020%25%20OFF-Hostinger%20Referral%20Deal-673de6?style=for-the-badge)](https://www.hostinger.com/in/referral?REFERRALCODE=1RISHABH418)
-[![India](https://img.shields.io/badge/🇮🇳%20Valid%20in-India-ff6b35?style=for-the-badge)](https://www.hostinger.com/in/referral?REFERRALCODE=1RISHABH418)
+[![India USA](https://img.shields.io/badge/🇮🇳%20Valid%20in-India-ff6b35?style=for-the-badge)](https://www.hostinger.com/in/referral?REFERRALCODE=1RISHABH418)
 [![Free Domain](https://img.shields.io/badge/🌐%20Free-Domain%20Included-22c55e?style=for-the-badge)](https://www.hostinger.com/in/referral?REFERRALCODE=1RISHABH418)
 [![Money Back](https://img.shields.io/badge/🛡️%2030--Day-Money%20Back-blue?style=for-the-badge)](https://www.hostinger.com/in/referral?REFERRALCODE=1RISHABH418)
 
